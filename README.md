@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dhevaasep
 - 👀 Saya suka menonton sepak bola
-- 🌱 Saya sedang menempuh pembelajaran di Telkom University Purwokerto
+- 🌱 Saya sedang menempa ilmu di Telkom University Purwokerto
 - 💞️ Berteman dan menambah relasi adalah hal yang sangat saya suka
 - 📫 Kontak Saya di IG : @dhevaasep
 - 😄 Libra
