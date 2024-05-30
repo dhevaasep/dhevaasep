@@ -1,10 +1,5 @@
 - 👋 Hi, I’m @dhevaasep
-- 👀 Saya suka menonton sepak bola
-- 🌱 Saya sedang menempa ilmu di Telkom University Purwokerto
-- 💞️ Berteman dan menambah relasi adalah hal yang sangat saya suka
-- 📫 Kontak Saya di IG : @dhevaasep
-- 😄 Libra
-- ⚡ "Jika kamu tidak mepunyai kesempatan untuk menang, setidaknya kamu masih mempunyai kesempatan untuk kabur"
+- Nothing here, just hooman likes codes
 
 <!---
 dhevaasep/dhevaasep is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
